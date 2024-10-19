@@ -1,2 +1,3 @@
-# bonanza
-Sweet Bonanza Oyunu Gerçek Oynayın
+# Sweet Bonanza Oyunu Gerçek Oynayın
+
+En popüler slot oyunlarından olan Sweet Bonanza oyununu gerçek versiyonunu oynayabilirsiniz. Mobil cihazlar ile tam uyumlu olarak çalışan oyunu ister telefonlarınızda ister tablet veya pc cihazlarından açarak, istediğiniz yerden erişebilirsiniz. En çok oynanan oyunlardan olan Sweet bonanza 6 satırdan 5 ve makaradan oluşan şeker patlatma temalı bir slot oyunudur. Pragmatic Play'in geliştirdiği ve neredeyse tüm sitelerde yer alan bu oyunu oynamak oldukça eğlenceli olsada, yine de dikkatli oynanması gerekiyor. Oyunun 2 ana bölümü mevcut; 1) Ana oyun ve her çevrimi ayarladığınız jeton değerinde çevirebilirsiniz 2) Ücretsiz spinsleri aktif edebilirsiniz. Keyfinize göre oynayabileceğiniz bu oyunu önerdiğimiz sitelerde oynayabilirsiniz
